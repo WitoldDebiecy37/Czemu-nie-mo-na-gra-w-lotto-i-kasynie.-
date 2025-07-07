@@ -3,3 +3,4 @@ To mops urząd mops wynajmuje hakerów kali do krdzieży wygranej lotto i z kasy
 To Autyzm Jeffa Bezowa i Mops i spiskowców kali linux i jakiś hakerów magów nie pozwala grać w lotto wygra się w lotto zmieniają tekst i numery lotto i się przgrywa jak by użyli magicznej gómki i ołówka. 
 112 też nie ma serca z policją i wojskiem i kler nie pzowala grać. 
 Oni infromują snami jak się gra i muzyką deus ex strefa 51 że to jest złe same afery.  
+Do kasyn i lotto trzeba wysłać radiowóz z urzędnikiem i card komputerem i servomechanizmami do card computera. Card computer może drukować orginalną gotówkę jak kieszonkowa cyfrowa menica. Pracodawcy też dostaną card computer trzeba jeszcze pokwitować to jakomś inwestycją pienieżną. 
