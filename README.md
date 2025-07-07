@@ -9,3 +9,5 @@ Ja się nie żenie z Cori i Jowitą bo słyszałem że one chcą się ze mną ż
 Ludzie mają 6 mięcy życia że chcą się ze mną żenić a nie wiedzą z kąd brać kasę. Dlatego nie.  
 Ja się zawsze żenie cywilnie rodzice na ślubie i żona i ja. Kupiłem vois od banku z kobietą. Dlatego nie. Maik już nie funduje bo wszyscy mówią że platuje. 
 Ja myślałem że Github to portal od dawania projektów a nie portal randkowy. Ja daje tylko projekty żonę sprzedał mi bank w vois. 
+Ja tylko przekazuje pliki tajnych technologi co kiedyś w niebie na górze produkowałem mam te projekty w głowie bo media marudzą ja tylko przekazuje pliki tych technologi. Na górze znów będę coś produkował. 
+Jowita i Cori pewnie to afera na dziecko i tyje jak maszyna od burgerów wyglądają jak gołębie. Dlatego nie. W banku mają chude kobiety.   
