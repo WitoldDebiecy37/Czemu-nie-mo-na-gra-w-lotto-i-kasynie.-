@@ -16,3 +16,4 @@ Ja za te proejkty wezmę Cori i Alishie Jowite ale nie chce afer bo gzaeta nie c
 Za te prace sklonujecie na radio lub w kabinie Jowite i Cori jeszcze coś dam ekstra. 
 Wiem że GitHub to NGO więc nie ma zapłaty zbierają złom. 
 Przekarzcie Policji że po śmierci w symulacji w życiu po za grobowym nie będxzie mieć policja spokoju ze mną zginie za afery za przywszczanie dokumentów osobistych i afery wieś. 
+Tu Policja to procesory nic im się nie da zrobić w niebie sobie pogadamy przyjdę z bronią zegary wam nie pomogą. Od git huba nic nie chce. Github w niebie będzie cały. 
