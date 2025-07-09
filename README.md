@@ -13,3 +13,4 @@ Ja tylko przekazuje pliki tajnych technologi co kiedyś w niebie na górze produ
 Jowita i Cori pewnie to afera na dziecko i tyje jak maszyna od burgerów wyglądają jak gołębie. Dlatego nie. W banku mają chude kobiety.   
 Nie żenie się bo liczy się dla mnie kasa. Ślub dla ubogich i rostanie po 30 latach bo liczy się gediatria nie interesuje mnie ślub i przekrent wośp. Dlatego tradycyjnie znów będę sam z voisem. 
 Ja za te proejkty wezmę Cori i Alishie Jowite ale nie chce afer bo gzaeta nie co pisać. Muszą najpierw zapracować na siebie na lokatę. 
+Za te prace sklonujecie na radio lub w kabinie Jowite i Cori jeszcze coś dam ekstra. 
