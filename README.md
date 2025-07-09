@@ -12,3 +12,4 @@ Ja myślałem że Github to portal od dawania projektów a nie portal randkowy. 
 Ja tylko przekazuje pliki tajnych technologi co kiedyś w niebie na górze produkowałem mam te projekty w głowie bo media marudzą ja tylko przekazuje pliki tych technologi. Na górze znów będę coś produkował. 
 Jowita i Cori pewnie to afera na dziecko i tyje jak maszyna od burgerów wyglądają jak gołębie. Dlatego nie. W banku mają chude kobiety.   
 Nie żenie się bo liczy się dla mnie kasa. Ślub dla ubogich i rostanie po 30 latach bo liczy się gediatria nie interesuje mnie ślub i przekrent wośp. Dlatego tradycyjnie znów będę sam z voisem. 
+Ja za te proejkty wezmę Cori i Alishie Jowite ale nie chce afer bo gzaeta nie co pisać. 
