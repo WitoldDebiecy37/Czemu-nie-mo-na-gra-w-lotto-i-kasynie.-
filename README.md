@@ -14,3 +14,5 @@ Jowita i Cori pewnie to afera na dziecko i tyje jak maszyna od burgerów wygląd
 Nie żenie się bo liczy się dla mnie kasa. Ślub dla ubogich i rostanie po 30 latach bo liczy się gediatria nie interesuje mnie ślub i przekrent wośp. Dlatego tradycyjnie znów będę sam z voisem. 
 Ja za te proejkty wezmę Cori i Alishie Jowite ale nie chce afer bo gzaeta nie co pisać. Muszą najpierw zapracować na siebie na lokatę. 
 Za te prace sklonujecie na radio lub w kabinie Jowite i Cori jeszcze coś dam ekstra. 
+Wiem że GitHub to NGO więc nie ma zapłaty zbierają złom. 
+Przekarzcie Policji że po śmierci w symulacji w życiu po za grobowym nie będxzie mieć policja spokoju ze mną zginie za afery za przywszczanie dokumentów osobistych i afery wieś. 
